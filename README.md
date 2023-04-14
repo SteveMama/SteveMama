@@ -1,6 +1,5 @@
 
-
-![image](https://user-images.githubusercontent.com/17807913/231958816-39cd7788-1a90-478f-bdcf-b3e73434e494.png)
+![header](https://user-images.githubusercontent.com/17807913/231959127-ddac4cf5-13ae-48f3-81ad-b1d881adef07.png)
 
 - 👋 Hi, You've reached Pranav Kompally.
 - I'm currently exploring the likes of Objectivism, Cybernetics and Carnatic Rock as a full-time student. As a side hustle, I'm a part-time cocktail taster diagnosed with the co-founder syndrome!
